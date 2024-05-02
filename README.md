@@ -1,4 +1,4 @@
-👋 Hi, I'm @chani6887
+👋 Hi, I'm Chana
 - 👀 I'm interested in huge challenges
 - 🌱 I'm currently learning everything new and technological
 - 💞️ I am looking to collaborate on innovative projects
